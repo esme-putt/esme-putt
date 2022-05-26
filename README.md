@@ -1,4 +1,4 @@
- 👩‍🦰 <b>Esmé Putt</b>
+ <h2>👩‍🦰 Esmé Putt</h2>
  
  💻 iOS, Android, React 
  
