@@ -2,7 +2,7 @@
  
  💻 iOS, Android, React 
  
- 🧗 🥊 🎤 ⛺️ Interested in climbing, boxing, camping, stand-up comedy
+ 🧗 🥊 🎤 ⛺️ Climbing, boxing, camping, stand-up comedy
  
  📱 IG: @cooldaywithesme
 
