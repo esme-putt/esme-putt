@@ -2,7 +2,7 @@
  
  💻 iOS, Android, React 
  
- 🧗 🥊 🎤 ⛺️ Climbing, boxing, camping, stand-up comedy
+ 🧗🥊🎤⛺️🛹🏂🏄‍♀️
  
  📱 IG: @cooldaywithesme
 
